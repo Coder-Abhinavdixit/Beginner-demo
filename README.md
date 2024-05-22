@@ -5,6 +5,6 @@ Author - Abhinav Dixit
 <br>
 Ik din mar jaayega
 <br>
-kutte ki maut
+chuhae ki maut
  
 
